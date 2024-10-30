@@ -7,7 +7,7 @@
 <br> 
   <br>
   <br>
-$\color{#58587e}{“Here~my~tears~are~falling,~}$ $\color{#37375e}{Nastenka.”}$
+$\color{#58587e}{“Here~my~tears~are~falling,~}$ $\color{#37375e}{Nastenka.}$
 <br>
 $\color{#6f6587}{Let~them~flow,~let~them~flow~}$
 <br>
