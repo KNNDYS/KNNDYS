@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=fyosig&color=ac8586&label=“+I+don’t+know+how+to+be+silent+when+my+heart+is+speaking.+”
 )
   </div>
-<p align="center"><img src="https://github.com/user-attachments/assets/5621b079-1795-4e08-9ab0-536eb327e96e">
+<p align="center"><img src="https://github.com/user-attachments/assets/e259c413-cbc3-4b9f-b2ce-9fafd0a3b99e">
 <br> 
   <br>
   <br>
