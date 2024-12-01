@@ -1,9 +1,9 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=fyosig&color=843651&label=“yeehaws”
+![](https://komarev.com/ghpvc/?username=fyosig&color=6a76a5&label=“girlies”
 )
   </div>
-<p align="center"><img src="https://github.com/user-attachments/assets/e259c413-cbc3-4b9f-b2ce-9fafd0a3b99e">
+<p align="center"><img src="https://github.com/user-attachments/assets/22826b92-522e-4ee6-82d9-4062a11399e6">
 <br> 
   <br>
   <br>
