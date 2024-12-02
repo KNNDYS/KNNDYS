@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=fyosig&color=6a76a5&label=“girlies”
+![](https://komarev.com/ghpvc/?username=fyosig&color=c04450&label=“girlies”
 )
   </div>
 <p align="center"><img src="https://github.com/user-attachments/assets/22826b92-522e-4ee6-82d9-4062a11399e6">
