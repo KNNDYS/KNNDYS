@@ -18,3 +18,4 @@ $\color{#ccb4a2}{﹕}$ **fandoms as hazbin hotel, homophobic people** <br>
 $\color{#ccb4a2}{﹕}$ **people older than 17, younger than 13** <br>
 $\color{#ccb4a2}{﹕}$ **pedophiles, people who sexualizes minors, etc.** <br>
 
+[_☆_](https://doveis.straw.page)
