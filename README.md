@@ -7,7 +7,7 @@ $\color{#ccb4a2}{ꕀ}$ [_SIGN ATABOOK_](https://fyolai.atabook.org) $\color{#ccb
 ![](https://komarev.com/ghpvc/?username=fyosig&color=c4ac7c&label=freaks
 )
 
-$\color{#ccb4a2}{⟡}$ [_CARRD_](https://overquit.carrd.co/#rules) $\color{#ccb4a2}{⟡}$ [_NEOSPRING_](https://neospring.org/@vodkakiss) $\color{#ccb4a2}{⟡}$ [_:3_](https://youtu.be/MkMRzbB0Xlk?si=z5k9VekkCVU-v5BQ) $\color{#ccb4a2}{⟡}$
+$\color{#ccb4a2}{⟡}$ [_CARRD_](https://overquit.carrd.co) $\color{#ccb4a2}{⟡}$ [_NEOSPRING_](https://neospring.org/@vodkakiss) $\color{#ccb4a2}{⟡}$ [_:3_](https://youtu.be/MkMRzbB0Xlk?si=z5k9VekkCVU-v5BQ) $\color{#ccb4a2}{⟡}$
 
   </div>
 <p align="center"><img src="https://github.com/user-attachments/assets/a19afe86-c8e4-48d2-88de-6ae896c0dc43">
