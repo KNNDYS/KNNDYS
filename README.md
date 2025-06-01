@@ -1,6 +1,6 @@
 <div align="center">
   
-ꕀ [_SIGN ATABOOK_](https://fyolai.atabook.org) {ꕀ}
+ꕀ [_SIGN ATABOOK_](https://fyolai.atabook.org) ꕀ
 
 <div align="center">
 
