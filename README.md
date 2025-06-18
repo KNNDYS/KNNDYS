@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=fyosig&color=c4ac7c&label=freaks
 )
 
-⟡ [_CARRD_](https://overquit.carrd.co) ⟡ [_NEOSPRING_](https://neospring.org/@vodkakiss) ⟡ [_:3_](https://youtu.be/MkMRzbB0Xlk?si=z5k9VekkCVU-v5BQ) ⟡
+⟡ [_CARRD_](https://overquit.carrd.co) ⟡ [_NEOSPRING_](https://neospring.org/@vodkakiss) ⟡ [_X_](https://x.com/soulicie) ⟡
 
   </div>
 <p align="center"><img src="https://github.com/user-attachments/assets/a19afe86-c8e4-48d2-88de-6ae896c0dc43">
